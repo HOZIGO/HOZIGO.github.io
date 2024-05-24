@@ -1,1 +1,2 @@
-# hozigo.github.io
+# hozigo.github.io #
+> 永远相信美好的事情即将发生
